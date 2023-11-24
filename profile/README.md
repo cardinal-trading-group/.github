@@ -1,4 +1,4 @@
-# Cardinal Trading Organization
+# Cardinal Trading Group @ UW-Madison
 
 ## Overview
 
